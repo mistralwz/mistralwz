@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Mistral
-- 👀 I’m like cool computer programs!
-- 📫 Discord: (Mistral#9699)
+👋 Hi, I’m Mistral
+👀 I like cool computer programs!
+📫 Reach me at Discord: (Mistral#9699)
