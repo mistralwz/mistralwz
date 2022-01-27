@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Mistral
+- 👀 I’m interested in cool computer programs!
+- 📫 Discord: (Mistral#9699)
